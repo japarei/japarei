@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+meu nome é Willian
+
+agora estou estudando no alura, também estou me desenvolvendo na linguagem Javascript, e claro utilizo esse espaço para minha organização e compartilhamento dos meus projetos  desenvolvidos
+
+se quiser pode entrar em contato comigo📪
+
+00001104258961sp@al.educacao.sp.gov.br
